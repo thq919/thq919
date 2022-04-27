@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @thq919
 - 👀 I’m interested in high socks supremacy
 - 🌱 I’m currently learning flutter
-- 💞️ I’m looking to collaborate with onlyfans
+- 💞️ I’m looking to collaborate with israel government
 - 📫 How to reach me ... send money via sberbank card
 
 <!---
